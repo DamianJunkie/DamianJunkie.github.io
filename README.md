@@ -16,4 +16,5 @@ Chicano (masculine form) or Chicana (feminine form) is an ethnic identity for Me
 
 
  HOW THIS CHICANO SUBCULTURE CAME TO THE PHILIPPINES (FULL DOCUMENTARY)
-![dasdsadsad9ashd](<iframe width="560" height="315" src="https://www.youtube.com/embed/Eqw4zCA3IDk?si=co29oZkP6O7MRWvN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Eqw4zCA3IDk?si=0pr4FaBilMd0M9C_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
