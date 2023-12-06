@@ -1,7 +1,7 @@
 # Chicano Culture
 Low riders mexican american
 
-![Uploading image.png…]()
+![dijas diusauhd](https://i.pinimg.com/750x/ba/54/e9/ba54e9c25a865f99ee83f1db38167fd2.jpg}
 
 
 
