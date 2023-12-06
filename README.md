@@ -1,2 +1,2 @@
-# Tupac Amaru Shakur
-My mama always used to tell me: 'If you can't find somethin' to live for, you best find somethin' to die for. ...
+# Chicano Culture
+Low riders mexican american
